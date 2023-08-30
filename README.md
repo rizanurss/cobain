@@ -1,2 +1,2 @@
 # cobain
-coba coba
+coba coba, akhirnya pusing juga
